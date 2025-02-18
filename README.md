@@ -64,7 +64,4 @@ For inquiries, reach out to:
 📧 tracemccane@gmail.com
 
 
----
-
-Let me know if you’d like any further changes!
 
